@@ -7,13 +7,6 @@ test
 test gal
 she- codes lesson1
 roses are red
-kjhfdfdxv
-xghgc
 
-dtyhdty 
+please add my commet
 
-hjghcjghj
-
-,jhfg
-
-mfgjkhdfjg
